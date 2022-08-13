@@ -5,7 +5,7 @@
 - 🔭 I’m currently working on school
 - 💬 Ask me about anything!
 - 📫 How to reach me: doctormod10@gmail.com
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: Any
 - ⚡ Fun fact: I have horrible fashion sense.
 
 
