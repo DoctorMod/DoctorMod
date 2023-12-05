@@ -6,7 +6,7 @@
 - 💬 Ask me about anything!
 - 📫 How to reach me: doctormod10@gmail.com
 - 😄 Pronouns: Any
-- ⚡ Fun fact: I have horrible fashion sense.
+- ⚡ Fun fact: I spend too much time debugging!
 
 
 <p align=center>
