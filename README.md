@@ -2,7 +2,7 @@
 
 ## I'm a Student, and Developer!
 
-- 🔭 I’m currently working on school
+- 🔭 I’m currently working on uni
 - 💬 Ask me about anything!
 - 📫 How to reach me: doctormod10@gmail.com
 - 😄 Pronouns: Any
